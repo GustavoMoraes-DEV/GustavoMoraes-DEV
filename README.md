@@ -71,10 +71,6 @@ Meu maior sonho e objetivo é **ser santo, custe o que custar**, buscando amar a
 
 ## 📖 Frases que me inspiram
 
-> "No coração da Igreja, eu serei o amor."
->
-> — Santa Teresinha do Menino Jesus
-
 > "Nada te perturbe, nada te espante; só Deus basta."
 >
 > — Santa Teresa de Ávila
