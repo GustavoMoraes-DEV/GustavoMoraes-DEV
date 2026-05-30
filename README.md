@@ -23,12 +23,6 @@ Além da tecnologia, minha fé católica faz parte da minha identidade. Procuro 
 Meu maior sonho e objetivo é **ser santo, custe o que custar**, buscando amar a Deus acima de todas as coisas e servi-Lo em cada aspecto da minha vida.
 
 📍 São Paulo, Brasil  
-💻 Desenvolvedor em formação  
-✝️ Católico  
-📚 Aprendizado contínuo  
-🚀 Sempre construindo novos projetos  
-🙏 Buscando a santidade, custe o que custar
-
 ---
 
 ## 🚀 Tecnologias que estou estudando
